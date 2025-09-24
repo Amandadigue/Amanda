@@ -8,7 +8,12 @@
 
 
 # ♱⋆.𓆩♡𓆪.⋆♱ 
-            
+
+**Bem vindos ao meu perfil do GitHub!** ✨
+
+Estou só começando a aprender, mas cada
+linha de código é como um passinho fofo rumo aos meus sonhos ִ 
+
 
 
 
